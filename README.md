@@ -1,1 +1,0 @@
-# smctirus.github.io
